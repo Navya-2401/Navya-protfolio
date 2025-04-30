@@ -1,1 +1,1 @@
-# Navya-protfolio
+# Praneeth_portfolio
